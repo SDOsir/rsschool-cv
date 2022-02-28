@@ -1,1 +1,1 @@
-# rsschool-cv
+https://SDOsir.github.io/rsschool-cv/cv
